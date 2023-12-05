@@ -14,4 +14,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: 
 - ⚡ Fun fact: ...
 -->
-New Developer in training. Asian (Lao/Chinese) male. He/Him pronouns. Used to work quite a bit in manual related jobs, 4 year bio degree, active and currently excited to work on some acro yoga and indoor bouldering, and I have no pets (will say I'm more of a cat person though I don't mind small dogs like Dachshunds)
